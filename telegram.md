@@ -7,6 +7,534 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 19:13
+---
+
+## VahidOOnLine — post 239545
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239545_1778514213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در جریان یک رویداد مربوط به سلامت مادران در کاخ سفید، با اشاره به تحولات مربوط به جمهوری اسلامی گفت گروهی از ژنرال‌های آمریکایی منتظر دیدار با او هستند.
+
+ترامپ خطاب به سخنرانان این نشست گفت: «زیاد طولانی صحبت نکنید، چون یک گروه بزرگ از ژنرال‌ها منتظر من هستند.»
+
+او سپس با اشاره به ایران افزود: «و آن موضوع هم مهم است، می‌دانید، مربوط می‌شود به کشور کاملاً دوست‌داشتنی ایران.»
+
+ترامپ همچنین با لحنی کنایه‌آمیز گفت: «آن‌ها این‌طور تلفظش می‌کنند.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239544
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239544_1778514214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در واکنش به اظهارات بنیامین نتانیاهو که گفته بود «هیچ‌کس پیش‌بینی کامل و دقیقی» درباره تنگه هرمز نداشت، گفت: «من داشتم. من می‌دانستم آن‌ها تنگه هرمز را بسته‌اند. این تنها سلاحی است که دارند.»
+ترامپ افزود آمریکا می‌توانست در چارچوب «پروژه آزادی» این گذرگاه را باز کند و گفت این عملیات می‌تواند از سر گرفته شود و در آن صورت «بسیار شدیدتر» خواهد بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239543
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239543_1778514215.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، دوشنبه ۲۱ اردیبهشت‌ماه در گفتگو با سی‌بی‌اس نیوز درباره پاسخ اخیر تهران به پیشنهاد صلح آمریکا گفت جمهوری اسلامی در برنامه هسته‌ای خود امتیازاتی داده، اما این امتیازها «کافی نبوده» و پیشنهاد تهران همچنان «بسیار ضعیف و غیرقابل قبول» است.
+
+ترامپ در واکنش به اظهارات نخست‌وزیر اسرائیل مبنی بر اینکه «هیچ‌کس پیش‌بینی دقیقی درباره تنگه هرمز نداشت» گفت: «من پیش‌بینی کرده بودم و می‌دانستم آن‌ها تنگه را بستند. این تنها سلاحشان بود.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239542
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239542_1778514216.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان ونکوور
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239541
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239541_1778514219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، به فاکس‌نیوز گفت واشینگتن در حال بررسی ازسرگیری عملیاتی برای بازگشایی تنگه هرمز است.
+
+او افزود واشینگتن فشار بر جمهوری اسلامی را تا زمان دستیابی به توافق ادامه خواهد داد.
+
+ترامپ همچنین گفت هنوز تصمیم نهایی درباره ازسرگیری «پروژه آزادی» را نگرفته است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239540
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239540_1778514219.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قوه قضائیه جمهوری اسلامی از توقیف بخشی از املاک علی کریمی خبر داد.
+
+بر اساس اعلام قوه قضائیه، ۲ واحد تجاری و ۴ واحد مسکونی متعلق به علی کریمی در استان البرز شناسایی و توقیف شده‌اند.
+
+در این گزارش ادعا شده این املاک پس از «استعلام از سازمان ثبت اسناد و املاک» و با «اقدامات حقوقی و اطلاعاتی» شناسایی شده‌اند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تاثیر جنگ ایران بر بازار نوشابه در هند؛
+قوطی‌های «دایت کوک» به کالای کمیاب تبدیل شد
+
+♦️کمبود قوطی‌های نوشابه «دایت کوک» در هند که گزارش‌ها آن را به اختلال در زنجیره تامین ناشی از جنگ ایران و مشکلات حمل‌ونقل دریایی در تنگه هرمز مرتبط می‌دانند، به موجی از واکنش‌های گسترده در شبکه‌های اجتماعی و حتی برگزاری مهمانی‌هایی با محوریت این نوشیدنی منجر شده است.
+بر اساس گزارش رویترز، «دایت کوک» در هند تنها در قوطی‌های آلومینیومی عرضه می‌شود و همین موضوع باعث شده اختلال در مسیرهای کشتیرانی و گیر افتادن بخشی از محموله‌ها، بازار این نوشیدنی را با کمبود مواجه کند.
+در روزهای اخیر، کاربران شبکه‌های اجتماعی در هند با انتشار تصاویر و ویدیوهایی از ذخیره‌سازی این نوشابه، به کمبود آن واکنش نشان داده‌اند و موجی از شوخی‌ها و تصاویر طنز درباره کمیاب شدن «دایت کوک» شکل گرفته است.
+در همین حال، برخی کافه‌ها و برگزارکنندگان رویدادها از این موج رسانه‌ای برای جذب مخاطب استفاده کرده‌اند و حتی «مهمانی دایت کوک» برگزار شده است؛ در برخی برنامه‌ها نیز قوطی‌های این نوشابه به عنوان جایزه قرعه‌کشی در نظر گرفته شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 10943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران:
+
+خیلی‌ها می‌گویند: “آیا او اصلاً برنامه‌ای دارد؟”
+البته که من برنامه دارم. من بهترین برنامه را دارم، بهترین برنامه‌ای که تا حالا وجود داشته است.
+@withyashar
+</div>
+
+## WithYashar — post 10942
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به فاکس نیوز گفت که فعلاً مطمئن نیست آمریکا چگونه وارد ایران شود تا موضوع جمع‌آوری «اورانیوم» را پیش ببرد، و افزود که این مسئله باید از طریق مذاکرات بیشتر حل‌وفصل شود.
+@withyashar
+</div>
+
+## mwarmonitor — post 8907
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_8907_1778514220.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایشون خیلی طولانی صحبت نخواهند کرد چون یک گروه بزرگ از ژنرال‌ها منتظر من هستن و این هم موضوع خیلی مهمیه، می‌دونید، (موضوعی) مربوط به کشور کاملاً دوست‌داشتنیِ ایرون (ایران)؛ اینجوری تلفظش می‌کنن.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 8906
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_8906_1778514222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸به مناسبت برگزاری سی‌امین دوره، فرماندهی مرکزی آمریکا (CENTCOM) قرار است ماه آینده رزمایش «همکاری منطقه‌ای ۲۰۲۶» را با مشارکت کشورهای آسیای مرکزی و جنوب آسیا برگزار کند.
+
+🔹در این رزمایش، نیروهای نظامی از نزدیک به ۱۲ کشور در ایالات متحده آموزش خواهند دید تا مهارت‌های عملیاتی خود را تقویت کنند، آمادگی رزمی را افزایش دهند و همکاری امنیتی منطقه‌ای را ارتقا دهند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 8905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غنی‌سازی اورانیوم ایران و توسعه فناوری هسته‌ای، در هر توافقی با آمریکا غیرقابل مذاکره است؛ این را رئیس سازمان انرژی اتمی ایران به نقل از صدا و سیمای جمهوری اسلامی ایران (IRIB) اعلام کرده است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341539
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341539_1778514223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: President Trump asks guests to keep their White House remarks short as he prepares for a high-stakes briefing with military leadership regarding Iran.
+
+"And you'll speak not too long, because I am being waited on by a large group of generals. And that's also important.”
+
+“Having to do with the absolutely lovely country of Iran.”
+</div>
+
+## FoxNewsTwitter — post 341538
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341538_1778514225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+HAPPENING NOW: President Trump reveals his new nickname for Democrats who don’t support his agenda:
+
+“They’ll give you no support at all, no matter how good it is.”
+
+"That’s why we call them the ‘Dumbocrats’... because they're dumb."
+</div>
+
+## FoxNewsTwitter — post 341537
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341537_1778514228.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump jokes about how he can get congressional Democrats to support his agenda as they continue to oppose his major policy initiatives:
+
+"I'm going to propose something the opposite of what I want, and we will have massive amounts of legislation.”
+
+“All I have to do is say ‘We will not build the wall!’”
+</div>
+
+## FoxNewsTwitter — post 341536
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341536_1778514231.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST NOW: President Trump announces a new rule from the Department of Labor to help expand fertility benefits for millions of Americans:
+
+"This is a new benefit or an option that will be a major help for millions of American moms that will result in more beautiful American babies."
+</div>
+
+## pm_afshaa — post 90558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور های پر سرعت شارژ شد
+
+در 2 حجم 5 گیگ و 10 گیگ موجوده
+
+5 گیگ 1440
+
+10 گیگ 2560
+
+برای خرید ارزی و ریالی دایرکت چنل میتونین پیام بدین
+</div>
+
+## IranIntlTV — post 336671
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336671" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | دوشنبه ۲۱ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336670
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336670_1778514234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در واکنش به اظهارات بنیامین نتانیاهو که گفته بود «هیچ‌کس پیش‌بینی کامل و دقیقی» درباره تنگه هرمز نداشت، گفت: «من داشتم. من می‌دانستم آن‌ها تنگه هرمز را بسته‌اند. این تنها سلاحی است که دارند.»
+ترامپ افزود آمریکا می‌توانست در چارچوب «پروژه آزادی» این گذرگاه را باز کند و گفت این عملیات می‌تواند از سر گرفته شود و در آن صورت «بسیار شدیدتر» خواهد بود.
+https://iranintl.com/202605119757
+</div>
+
+## ManotoTV — post 105313
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105313_1778514235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در جریان یک رویداد مربوط به سلامت مادران در کاخ سفید، با اشاره به تحولات مربوط به جمهوری اسلامی گفت گروهی از ژنرال‌های آمریکایی منتظر دیدار با او هستند.
+
+ترامپ خطاب به سخنرانان این نشست گفت: «زیاد طولانی صحبت نکنید، چون یک گروه بزرگ از ژنرال‌ها منتظر من هستند.»
+
+او سپس با اشاره به ایران افزود: «و آن موضوع هم مهم است، می‌دانید، مربوط می‌شود به کشور کاملاً دوست‌داشتنی ایران.»
+
+ترامپ همچنین با لحنی کنایه‌آمیز گفت: «آن‌ها این‌طور تلفظش می‌کنند.»
+</div>
+
+## ManotoTV — post 105312
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105312_1778514236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان ونکوور
+</div>
+
+## ManotoTV — post 105311
+
+<div align="center">
+  <img src="telegram/content/ManotoTV_105311_1778514239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، به فاکس‌نیوز گفت واشینگتن در حال بررسی ازسرگیری عملیاتی برای بازگشایی تنگه هرمز است.
+
+او افزود واشینگتن فشار بر جمهوری اسلامی را تا زمان دستیابی به توافق ادامه خواهد داد.
+
+ترامپ همچنین گفت هنوز تصمیم نهایی درباره ازسرگیری «پروژه آزادی» را نگرفته است.
+</div>
+
+## ManotoTV — post 105310
+
+<div align="center">
+  <img src="telegram/content/ManotoTV_105310_1778514240.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قوه قضائیه جمهوری اسلامی از توقیف بخشی از املاک علی کریمی خبر داد.
+
+بر اساس اعلام قوه قضائیه، ۲ واحد تجاری و ۴ واحد مسکونی متعلق به علی کریمی در استان البرز شناسایی و توقیف شده‌اند.
+
+در این گزارش ادعا شده این املاک پس از «استعلام از سازمان ثبت اسناد و املاک» و با «اقدامات حقوقی و اطلاعاتی» شناسایی شده‌اند.
+</div>
+
+## Persian_Trend_Official — post 13925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: گروه بزرگی از ژنرال‌ها منتظرند تا در مورد ایران با من ملاقات کنند
+
+🔹ما در حال حاضر نمی‌دانیم چگونه می‌توانیم ایران را برای ادامه حذف بقایای هسته‌ای متقاعد کنیم و این موضوع را به مذاکرات بیشتر موکول خواهیم کرد.
+
+▪️اگر توافقی حاصل نشود، ما ایران را به گونه‌ای هدف قرار خواهیم داد که قبلاً ندیده‌اند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 19954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+ایرانی‌ها یک پیشنهاد احمقانه داده‌اند که نمی‌توانیم آن را بپذیریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+طرح من برای محاصره ایران یک طرح نظامی نابغه بود، درست مانند طرح ونزوئلا
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19952
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19952_1778514241.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ایران:
+
+خیلی‌ها می‌گویند: آیا او برنامه‌ای دارد؟
+
+البته که برنامه دارم. بهترین برنامه‌ای که تا به حال بوده را دارم!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ به فاکس نیوز:
+
+فعلا نمی‌دانیم چطور می‌توانیم وارد ایران شویم تا گرد هسته‌ای را جمع‌آوری کنیم و این موضوع را برای مذاکرات بیشتر باقی می‌گذاریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+مذاکره‌ کنندگان ایرانی به من گفتن ‌ که آمریکا باید مواد رادیواکتیو و «گرد هسته‌ای» را از سایت‌های هسته‌ای تخریب‌شده ایران خارج کند، چون ما فناوری لازم برای استخراج آن را نداریم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19949
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19949_1778514243.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+گروه بزرگی از ژنرال‌ها منتظر من هستند تا درباره کشور فوق‌العاده‌ی ایران صحبت کنیم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پاکستان :
+
+تمام تلاشمونو‌ میکنیم که بن بست مذاکرات ایران و آمریکا رو از بین ببریم و کاری کنیم به توافق برسن.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389266
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: "در ایران، خیابان‌ها را به نام من نامگذاری می‌کنند. می‌دانید؟ خب، البته بعد از رئیس‌جمهور ترامپ هم، چون او رهبری مبارزه را بر عهده دارد. اما آن‌ها این را دارند؛ من فارسی صحبت نمی‌کنم، اما مرا «بی بی جون» صدا می‌کنند: بی بی عزیز." @Dirty_Kids 👻
+</div>
+
+## manototv — post 105313
+
+<div align="center">
+  <a href="telegram/content/manototv_105313_1778514245.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در جریان یک رویداد مربوط به سلامت مادران در کاخ سفید، با اشاره به تحولات مربوط به جمهوری اسلامی گفت گروهی از ژنرال‌های آمریکایی منتظر دیدار با او هستند.
+
+ترامپ خطاب به سخنرانان این نشست گفت: «زیاد طولانی صحبت نکنید، چون یک گروه بزرگ از ژنرال‌ها منتظر من هستند.»
+
+او سپس با اشاره به ایران افزود: «و آن موضوع هم مهم است، می‌دانید، مربوط می‌شود به کشور کاملاً دوست‌داشتنی ایران.»
+
+ترامپ همچنین با لحنی کنایه‌آمیز گفت: «آن‌ها این‌طور تلفظش می‌کنند.»
+</div>
+
+## manototv — post 105312
+
+<div align="center">
+  <a href="telegram/content/manototv_105312_1778514247.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان ونکوور
+</div>
+
+## manototv — post 105311
+
+<div align="center">
+  <img src="telegram/content/manototv_105311_1778514250.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، به فاکس‌نیوز گفت واشینگتن در حال بررسی ازسرگیری عملیاتی برای بازگشایی تنگه هرمز است.
+
+او افزود واشینگتن فشار بر جمهوری اسلامی را تا زمان دستیابی به توافق ادامه خواهد داد.
+
+ترامپ همچنین گفت هنوز تصمیم نهایی درباره ازسرگیری «پروژه آزادی» را نگرفته است.
+</div>
+
+## manototv — post 105310
+
+<div align="center">
+  <img src="telegram/content/manototv_105310_1778514251.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قوه قضائیه جمهوری اسلامی از توقیف بخشی از املاک علی کریمی خبر داد.
+
+بر اساس اعلام قوه قضائیه، ۲ واحد تجاری و ۴ واحد مسکونی متعلق به علی کریمی در استان البرز شناسایی و توقیف شده‌اند.
+
+در این گزارش ادعا شده این املاک پس از «استعلام از سازمان ثبت اسناد و املاک» و با «اقدامات حقوقی و اطلاعاتی» شناسایی شده‌اند.
+</div>
+
+## alonews — post 119313
+
+<div align="center">
+  <a href="telegram/content/alonews_119313_1778514252.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایرانی‌ها پیشنهاد احمقانه‌ای دادند که ما نمی‌توانیم آن را بپذیریم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119312
+
+<div align="center">
+  <a href="telegram/content/alonews_119312_1778514252.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پاکستان : تلاش میکنیم بن‌بستِ مذاکرات ایران و آمریکا رو بشکونیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119311
+
+<div align="center">
+  <a href="telegram/content/alonews_119311_1778514252.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ، درباره دموکرات ها : من قبلاً شکار بودم، حالا شکارچی‌ام، این‌ها آدم‌های بدی هستن
+
+
+🔴 برای همین بهشون می‌گیم "احمق‌سالارها" یه اسم جدید براشون داریم، چون احمقن. این‌ها آدم‌های احمقی هستن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119310
+
+<div align="center">
+  <a href="telegram/content/alonews_119310_1778514255.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ به فاکس نیوز: ما در حال حاضر نمی‌دانیم چگونه می‌توانیم ایران را برای ادامه حذف بقایای هسته‌ای متقاعد کنیم و این موضوع را به مذاکرات بیشتر موکول خواهیم کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119309
+
+<div align="center">
+  <a href="telegram/content/alonews_119309_1778514256.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ:
+تعداد زیادی از ژنرال ها منتظر من هستند تا در مورد ایران صحبت کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 18:53
 ---
 
