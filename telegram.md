@@ -7,6 +7,181 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 23:34
+---
+
+## FoxNewsTwitter — post 341615
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341615_1778616253.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: A heated exchange erupts in the Senate as FBI Director Kash Patel and Dem Sen. Chris Van Hollen trade barbs over accusations of "excessive drinking" against Patel—while the director blasts Van Hollen, claiming he was "slinging margaritas" during a controversial trip to El Salvador.
+
+“The only person that was slinging margaritas in El Salvador on the taxpayer dollar with a convicted, gang-banging rapist was you.”
+
+“The only individual in this room that has been drinking on the taxpayer dime during the day is you.”
+
+"This is the ultimate example of hypocrisy. I will not be tarnished by baseless allegations."
+</div>
+
+## IranIntlTV — post 336879
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336879_1778616255.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انجمن قلم آمریکا در گزارش سالانه خود اعلام کرد؛ شمار نویسندگان زندانی در جهان برای نخستین‌بار از ۴۰۰ نفر عبور کرده است. این نهاد گفت؛ چین با ۱۱۹ مورد در صدر قرار دارد و ایران با زندانی‌کردن ۵۳ نویسنده در رتبه دوم ایستاده است.
+
+در این گزارش آمده است؛ عربستان سعودی با ۲۷ نویسنده زندانی در رتبۀ سوم قرار دارد. پن آمریکا تاکید کرد؛ سرکوب نویسندگان و اهل قلم در ایران، به‌ویژه پس از «جنگ ۱۲روزه»، شدت گرفته است.
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336878
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336878" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: ترامپ: برای توافق با جمهوری اسلامی عجله ندارم
+@iranintlTV
+</div>
+
+## FarsiVOA — post 217571
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_217571_1778616257.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کامبیز غفوری در برنامه تفسیر خبر: بزرگترین امتیاز جمهوری اسلامی در توافق ادامه حیات است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217570
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺بازداشت «ژنرال بمب‌های بشکه‌ای»؛ فرمانده نیروی هوایی رژیم اسد محاکمه می‌شود
+
+▪️وزارت کشور سوریه روز سه‌شنبه ۲۲ اردبیهشت اعلام کرد، جایز حمود موسی، فرمانده سابق نیروی هوایی سوریه، را بازداشت کرده است. او طراح ریختن بمب‌های بشکه‌ای بر مناطق تحت سلطه مخالفان است؛ اقدامی که به قربانی شدن هزاران تن از مردم سوریه، از جمله تعداد زیادی از زنان و کودکان، منجر شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/syria-bashar-alassad-crime-revolution-irgc/8149228.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️برگزاری دو نشست دفاعی در اروپا؛ حمایت از اوکراین تا امنیت تنگه هرمز و پیامدهای جنگ خاورمیانه
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/rrGzLhyQoaY?feature=share
+</div>
+
+## RadioFarda — post 157111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸خبرگزاری رویترز روز سه‌شنبه در گزارشی اختصاصی به نقل از دو مقام غربی و دو مقام ایرانی اعلام کرد که در جریان جنگ اخیر، عربستان سعودی در واکنش به حملات تهران به این کشور، چندین حمله به اهدافی در ایران انجام داده بود. 🔸این حملات عربستان سعودی که پیش‌تر گزارش…
+</div>
+
+## RadioFarda — post 157110
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157110_1778616258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸خبرگزاری رویترز روز سه‌شنبه در گزارشی اختصاصی به نقل از دو مقام غربی و دو مقام ایرانی اعلام کرد که در جریان جنگ اخیر، عربستان سعودی در واکنش به حملات تهران به این کشور، چندین حمله به اهدافی در ایران انجام داده بود.
+
+🔸این حملات عربستان سعودی که پیش‌تر گزارش نشده بودند، نخستین مورد شناخته‌شده از اقدام مستقیم نظامی این کشور در خاک ایران به شمار می‌روند.
+
+🔸به گفته دو مقام غربی، این حملات که توسط نیروی هوایی عربستان انجام شده‌اند، در اواخر ماه مارس صورت گرفته‌اند. یکی از آن‌ها گفت این حملات «اقدامات تلافی‌جویانه متقابل در پاسخ به حمله به عربستان» بوده است.
+
+🔸رویترز می‌گوید نتوانسته است اهداف دقیق این حملات را تأیید کند.
+
+🔸در پاسخ به درخواست اظهار نظر، یک مقام ارشد وزارت خارجه عربستان به‌طور مستقیم به این سوال که آیا چنین حملاتی انجام شده یا نه پاسخ نداد. وزارت خارجه ایران نیز به درخواست اظهار نظر پاسخ نداد.
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157109
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157109_1778616258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸وزارت خارجه جمهوری اسلامی بازداشت چهار نفر در کویت را که مقام‌های کویتی آن‌ها را وابسته به سپاه پاسداران معرفی کرده‌اند، تأیید کرد اما اتهام برنامه‌ریزی برای «اقدامات خصمانه» علیه کویت را رد کرد.
+
+🔸وزارت خارجه ایران روز سه‌شنبه اعلام کرد این افراد در حال گشت دریایی بوده‌اند و به دلیل «اختلال در سیستم ناوبری» وارد آب‌های سرزمینی کویت شده‌اند.
+
+🔸این وزارتخانه همچنین اظهارات مقام‌های کویتی درباره قصد ایران برای انجام عملیات خصمانه را رد و آن را بی‌اساس توصیف کرد.
+
+🔸پیشتر وزارت کشور کویت اعلام کرده بود چهار «نفوذی» وابسته به سپاه پاسداران انقلاب اسلامی را پس از تلاش برای ورود دریایی به این کشور بازداشت کرده است.
+
+🔸رسانه‌های دولتی کویت همچنین گزارش داده بودند که بازداشت‌شدگان در بازجویی‌ها گفته‌اند مأموریت داشته‌اند با یک قایق ماهیگیری به جزیره بوبیان نفوذ کنند.
+
+@RadioFarda
+</div>
+
+## alonews — post 119595
+
+<div align="center">
+  <img src="telegram/content/alonews_119595_1778616259.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران عالیه؛ فک کن اول باید نیم میلیارد بدیم تا موبایل بخریم، بعد باید یه مبلغ عجیب غریب بدیم که اجازه بدن موبایل آنتن داشته باشه، بعد باید پول بدیم بریم بسته بخریم، بعد واسه بستمون باید بریم پول بدیم کانفیگ بخریم که بتونیم از اینترنتش استفاده کنیم.
+
+[@AloTweet]
+</div>
+
+## alonews — post 119594
+
+<div align="center">
+  <a href="telegram/content/alonews_119594_1778616259.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۲ اسرائیل : نتانیاهو در تلاشه که انتخابات اسرائیل رو به تعویق بندازه تا قضیه ایران تموم بشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119593
+
+<div align="center">
+  <a href="telegram/content/alonews_119593_1778616261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیدار معاون وزیر خارجه نروژ با عراقچی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119592
+
+<div align="center">
+  <a href="telegram/content/alonews_119592_1778616261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صداوسیما:
+الوعده وفا؛ داریم اینترنت اونایی که کسب‌وکار دارن یا تو فضای مجازی فعالیت می‌کنن رو وصل می‌کنیم(بهشون سیم‌کارت پرو میدن) که برن عشق کنن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 23:26
 ---
 
